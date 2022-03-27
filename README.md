@@ -1,2 +1,2 @@
 # 3D-Printing
-Personal and public 3D Printer files
+Personal and public (not made by me) 3D Printer files
