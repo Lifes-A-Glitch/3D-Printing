@@ -1,0 +1,1 @@
+Samsung Watch Stand With Cable Retaining Nubs by brandon_shelton on Thingiverse: https://www.thingiverse.com/thing:5808604
